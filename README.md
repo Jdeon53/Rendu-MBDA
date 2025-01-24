@@ -1,1 +1,1 @@
-# Rendu-MBDA
+- Jean Désiré Latalle
